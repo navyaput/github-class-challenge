@@ -1,1 +1,0 @@
-# github-class-challenge
